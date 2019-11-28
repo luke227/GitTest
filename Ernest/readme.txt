@@ -1,1 +1,1 @@
-I am Lazy.
+I am the first to complete homework.

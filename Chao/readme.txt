@@ -1,1 +1,1 @@
-I am Lazy.
+I am Good, not lazy!

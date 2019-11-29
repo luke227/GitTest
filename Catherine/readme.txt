@@ -1,1 +1,1 @@
-I am Lazy.
+I am looking for a vacation.

@@ -1,1 +1,1 @@
-I am diligent.
+I am not Lazy. I am diligent I believe.
